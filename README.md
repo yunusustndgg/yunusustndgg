@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 I am Cyber Security student with a passion for Machine Learning and Game Making<br>📫 Add me on <a href="https://www.instagram.com/yunus.ustndgg/">Instagram</a> or <a href="https://www.linkedin.com/in/yunus-emre-ustundag/">Linkedin</a>
+💻 I am Cyber Security student with a passion for Machine Learning and Game Making<br>📱 Add me on <a href="https://www.instagram.com/yunus.ustndgg/">Instagram</a> or <a href="https://www.linkedin.com/in/yunus-emre-ustundag/">Linkedin</a>
 
 
 ## 🌐 Socials:
